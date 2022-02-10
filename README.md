@@ -1,1 +1,1 @@
-# falloutnewvegas1.github.io
+print("kill jewish minorities")
