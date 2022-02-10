@@ -1,1 +1,1 @@
-print("kill jewish minorities")
+print("mass slaughter")
